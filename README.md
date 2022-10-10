@@ -1,7 +1,7 @@
 - 👋 Hi,my great people
 - 👀 this is your swati
 - 🌱 I’m currently persuing BCA from Langat Singh College Muzaffarpur
--😁 you connect me via these links👇👇👇👇
+- 😁 you connect me via these links👇👇👇👇
 -
 
 <!---
