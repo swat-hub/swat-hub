@@ -3,7 +3,8 @@
 - 🌱 I’m currently persuing BCA from Langat Singh College Muzaffarpur
 - 😁 you connect me via these link
 - 👇👇👇👇
-https://instagram.com/swatsjasmine?igshid=YmMyMTA2M2Y=
+
+--https://instagram.com/swatsjasmine?igshid=YmMyMTA2M2Y=
 -
 
 <!---
